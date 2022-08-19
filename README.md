@@ -1,0 +1,26 @@
+## MAIN
+1, Private Space Marvel: 
+0xC0ec934a21D27143B2e4BC26a7e2eCec3Eae6cB8
+__________________________________________
+
+2, Play to earn:
+0xa113933D3310b92bfC47310c92691A632F5BC4e7
+__________________________________________
+
+3, Marketing:
+0x343D14587dF910f682AE77c3e809DCda8a52AB7D
+__________________________________________
+
+4, Ecosystem:
+0x88dfD1B40c6cF9701DFCc1EBD12BBFb0AA52982E
+__________________________________________
+
+5, Public sale:
+0xA596C18957CC8b933a9d75a326e47Dd3ddB9129E
+
+6, Advisor + team
+0x43cbB65cc934360c6ECA0Fa19a100380A6d221B2
+
+
+
+
